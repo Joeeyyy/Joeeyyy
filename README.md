@@ -1,0 +1,2 @@
+- 👋 Hi, I’m @Joeeyyy
+- 👀 I’m interested in web development
